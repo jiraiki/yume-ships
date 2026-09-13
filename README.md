@@ -6,7 +6,7 @@
 
 𓈈 𖣠 "How does it feel. To be the clown of my story."
 
-i love you sm ur so cutee idc if u slurr to others ur just a cute patootie i also love ur plant (on the head) ur so silly!! idc if u dont have time for me, i will keep supporting u to become number 1!! I love youuu <3 I'll follow ur dreams too! ur so adorable istg <33
+
 
 ‧˚꒰💙୭ ˚. ᵎᵎ
 
@@ -14,7 +14,7 @@ i love you sm ur so cutee idc if u slurr to others ur just a cute patootie i als
 
 𓈈 𖣠 "We ought to use every tool at our disposal to do our jobs - even Devils and Fiends. But enemies are enemies... we're only using them. I have no intention of getting friendly with one"
 
-OMG HII! my housewife ilysmm please take care of me and gimme Lots of cuddles and kisses!! please comfort me in bed ilyy my husband >_< ur so cute when ur around me istg!! please feed me (also with something else if ykyk) I LOVE U SMM UR SO ADORABLE and thank u for cleaning thw house ^-^
+
 
 ‧˚꒰💛୭ ˚. ᵎᵎ
 
@@ -22,13 +22,41 @@ OMG HII! my housewife ilysmm please take care of me and gimme Lots of cuddles an
 
 𓈈 𖣠 "Well, the more you tell me to do something, the less I wanna! Guess that makes me a contrarian."
 
-ILYSMMM, this is our teenage love!! yes i'll watch all ur games and cheer for u, i love ur clingyness and ill always hug u back!! thanks for teaching me french.. ur not the best teacher but the dedication is real!! ilysmm ill always be there and at school (school au mention >_<) i wanna give u Lots of kisses and love!! ilysmm! ur so cutee ♡ 
+
 
 ⌯⌲ OTHERS OKK!! 
 
-𓈈 𖣠 Mizuki Akiyama
+𓈈 𖣠 NAGITO KOMAEDA 🍀
 
-'Everything is cute!' 
+KAWORU NAGISA 🪦🪽
 
-YES TEENAGE LOVE!! i wanna see u everyday at school and give u lots of hugs!! idc abt ur genderr u can express urself freely with me!! ilysmm mizooke ^_^
+ROBIN (HSR) 🎤
 
+i have 1029282 partnerssss kill me ❤️
+
+.
+
+
+oc x Canons cuz i can
+
+makoto naegi x neri kurosawa
+<img width="2048" height="2048" alt="1000175503" src="https://github.com/user-attachments/assets/3638e9bb-bf48-45fc-8948-6052c83bb5ab" /> or
+<img width="1079" height="1595" alt="1000181090" src="https://github.com/user-attachments/assets/04a423d4-6ed1-400b-b04d-f50267195370" />
+
+
+﹕ 𓄧  ༉ ﹕
+
+these next ones r lazy
+
+Èngel x Alexis Ness
+<img width="1080" height="1578" alt="1000181081" src="https://github.com/user-attachments/assets/1322fb64-8ad7-44b7-9208-66869c133076" />
+
+
+Aisuru x Itoshi Rin
+<img width="1080" height="1639" alt="1000181077" src="https://github.com/user-attachments/assets/96107a42-6d09-4859-9cde-1fc27e016fe0" /> (old design)
+
+
+Mafuui x Ibuki Mioda
+<img width="1079" height="1679" alt="1000181087" src="https://github.com/user-attachments/assets/ab9a914d-c2d2-46cb-9ce0-5d34ff7a1424" />
+
+do not take or repost as ur own! i will find you. seriously dont.
